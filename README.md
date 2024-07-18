@@ -2,7 +2,7 @@
 - 👀 I’m interested in Video Games
 - 🌱 I’m currently learning new things
 - 💞️ I’m looking to collaborate on Github
-- 📫 How to reach me leessandra17
+- 📫 Reach me at FB
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I survived CCS
 
